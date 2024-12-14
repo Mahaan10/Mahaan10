@@ -1,5 +1,5 @@
 # 💫 About Me:
-I'm currently working on building my career!
+I'm currently working on build my career!
 
 
 ## 🌐 Socials:
